@@ -6,4 +6,4 @@ autor: Kauan J. da Silva.
 - compartilhamento dos meus projetos desenvolvidos.
 
   ## follow me !
-  - @illusionxgusta
+  ⎯ @illusionxgusta
